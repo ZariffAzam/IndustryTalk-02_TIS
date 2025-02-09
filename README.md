@@ -11,3 +11,4 @@ Other than the technical skills, I will put more focus on enhancing my soft skil
 These soft skills include communication, leadership and adaptability.
 
 Take a look at our report here
+[Assignment3_Group6.pdf](https://github.com/user-attachments/files/18723895/Assignment3_Group6.pdf)
